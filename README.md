@@ -1,8 +1,8 @@
 - 👋 Hi, I’m Haos
 
-I'm junior node.js developer
+I'm node.js developer
 
-#Links
+- *Links*
 
 My Vk: https://vk.com/mybloodrunsdry
 
