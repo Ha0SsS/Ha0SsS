@@ -8,4 +8,4 @@ My Vk: https://vk.com/mybloodrunsdry
 
 My Discord: HaoS#3641
 
-My Telegram: https://t.me/isteelseeyourshadows
+My Telegram: https://t.me/istillseeyourshadows
